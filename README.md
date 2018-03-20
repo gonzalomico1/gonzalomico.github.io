@@ -1,1 +1,0 @@
-# gonzalomico.github.io
